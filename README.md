@@ -8,6 +8,11 @@
 تقریبا 180 مگابایت 
 
 *************************************************************
+توضیحات این نرم افزار در لینک زیر:
+
+https://virgool.io/@MohammadMokhtari/%D9%85%D8%B3%D8%AA%D9%86%D8%AF%D8%A7%D8%AA-%D9%86%D8%B1%D9%85-%D8%A7%D9%81%D8%B2%D8%A7%D8%B1-%D9%85%D8%AF%DB%8C%D8%B1%DB%8C%D8%AA-%D9%85%D8%A7%D9%84%DB%8C-%D8%AA%D8%B1%D9%87-%D8%A8%D8%A7%D8%B1-%D9%81%D8%B1%D9%88%D8%B4%DB%8C-%D8%AA%D8%AD%D8%AA-%D8%B4%D8%A8%DA%A9%D9%87-ue0vqaic5zsl
+
+
 www.telegram.com/mamadmti
 
 www.instagram.com/mtiapps

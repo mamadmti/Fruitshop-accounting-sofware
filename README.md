@@ -12,7 +12,8 @@
 
 https://virgool.io/@MohammadMokhtari/مستندات-نرم-افزار-مدیریت-مالی-تره-بار-فروشی-تحت-شبکه-ue0vqaic5zsl
 
-www.telegram.com/mamadmti
+*************************************************************
 
-www.instagram.com/mtiapps
+خوشحال میشم من رو در شبکه های اجتماعی مختلف دنبال کنید
 
+https://mamadmti.bio.link/
